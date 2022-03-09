@@ -11,3 +11,8 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+
+- :zap: I love math, programming, and books
+- 🌱 I’m addicted to learning and growing every day
+- 📫 How to find me: 
+  - :office: [LinkedIn](https://www.linkedin.com/in/serdar-karakurt-13698587/)
